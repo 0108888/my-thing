@@ -1,1 +1,1 @@
-go to discord.com and click download for windaows
+go to discord.com and click download for windows
